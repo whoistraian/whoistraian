@@ -1,0 +1,3 @@
+# Traian Simedru
+
+## Software Developer
